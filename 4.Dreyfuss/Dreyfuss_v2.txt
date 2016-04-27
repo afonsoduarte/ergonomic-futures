@@ -1,0 +1,5 @@
+What is the face, the figure of democracy—life lived on the 50th percentile? The protagonists of Dreyfuss's 1955 book, _Designing for People,_ are Joe and Josephine: two polished mirrors of mid-century misogyny.  The presumed residents of his greenfield city passed their days, respectively, on a linotype and over the ironing table; in a tank and at the switchboard.  Their machines, like their mores, dictated how they should fit.  Dreyfuss kept the mores, but improved the machines.
+
+Joe passes his days in a tank, and Josephine at the switchboard; he loses a limb, and she routes the call.  When Joe returns from the war, he finds his blue collars bleached.  Starched, pressed Oxfords hang in his closet, ready for office work.  And his stump, to his surprise, is a mark of distinction, for which Dreyfuss has designed a medal.
+
+Joe wears his medal to work each day, the stainless steel hooks peeking out from his cuff.  Sometimes, he casually rolls up his shirtsleeve, letting his colleagues marvel at the single housing, the hidden joints, the subtleties of the prosthetic's engineering.  If only they had a war hero's life; what an honorable disability!
